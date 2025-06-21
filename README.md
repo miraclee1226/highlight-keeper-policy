@@ -57,7 +57,7 @@ This extension requires access to all websites to:
 
 ## Contact Information
 
-For questions about this privacy policy, contact: heron6534@gmail.com
+For questions about this privacy policy, contact: highlightkeeper.official@gmail.com
 
 ## Changes to This Policy
 
